@@ -1,5 +1,5 @@
 #  **<span style="color:green">LION TECH ACADEMY.</span>**
-### **<span style="color:green">Contacts: ++1647 381 8836 | ++1647 381 8836 | +1647 614 8836 <br> WebSite : <liontechacademy.com/></span>**
+### **<span style="color:green">Contacts: +1647 381 8836 | ++1647 381 8836 | +1647 614 8836 <br> WebSite : <liontechacademy.com/></span>**
 ### **Email:info@liontechacademy.com**
 
 ## Frequently asked questions and answers.
@@ -18,7 +18,7 @@
 + Yes. We take you from zero IT background to become a highly skilled and Professional IT & DevOps Engineer.
 + Over 95% of our graduates working today had no prior IT background before joining.
 
-### ✅3)	What is the average salary of LION TECH ACADEMYTrained DevOps Engineer? 
+### ✅3)	What is the average salary of LION TECH ACADEMY Trained DevOps Engineer? 
 + The average salary is about $150,000/yr. for a single job.
 + The highest paid LION TECH ACADEMYEngineers are making over $700,000/year. 
 #### NB: You can start making millions of dollars via our coaching programs that helps Engineers start their own IT companies.
